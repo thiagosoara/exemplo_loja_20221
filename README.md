@@ -1,0 +1,1 @@
+# exemplo_loja_20221
